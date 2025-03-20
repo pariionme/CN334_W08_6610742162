@@ -1,2 +1,1 @@
-Praewa Choteboon 
-6610742162
+Praewa Choteboon 6610742162
